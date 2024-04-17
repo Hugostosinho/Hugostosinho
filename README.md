@@ -1,0 +1,8 @@
+- 👋 Hey guys, my name is Victor, aka @Hugostosinho, I'm from Sorocaba, Brazil.
+- ❤️ I date, I don't drink, I don't smoke, what if I fuck? Find it out, just kidding, this phrase is a popular meme in Brazil.
+- 👀 I’m interested in 3D printers, game development e a little bit of real programming.
+- 🧠 I’m currently learning how to make a 3D printer from scratch, electrical concepts, aerodynamics and civil structure.
+- ⌨️ I try to collaborate with society in my own way.
+- 📫 You can reach me on my social networks which are on my profile.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: my dream is study civil or aeronautical engineering in the University of São Paulo (USP), the best college in Brazil in my opinion.
